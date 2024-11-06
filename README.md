@@ -27,6 +27,8 @@ Other mobile operating systems have also made attempts to enter the market, thou
 
 #
 ![Smartphone](https://github.com/user-attachments/assets/edbd79cb-80f3-4cb7-9648-5864053ff2a2)
+#
+![Mobile](https://github.com/user-attachments/assets/5a3e3032-98be-47f0-b44d-3a247cd37dbb)
 
 #
 
